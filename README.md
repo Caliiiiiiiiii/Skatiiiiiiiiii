@@ -1,2 +1,2 @@
-# Skatiiiiiiiiii
+# Skatiiiiii
 A skateboard shop
